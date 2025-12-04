@@ -1,2 +1,0 @@
-# Sibiraj-Portfolio
-My portfolio 
